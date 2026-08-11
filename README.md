@@ -7,15 +7,15 @@
 
 ## Tracklist:
 
-Impostor Syndrome - Sídney Gish
+Impostor Syndrome - Sídney Gish,
 
-Camino Solo - Yung Beef
+Camino Solo - Yung Beef,
 
-When the feeling is gone - Small Town Kid
+When the feeling is gone - Small Town Kid,
 
-NightCrawl - Lost Highway
+NightCrawl - Lost Highway,
 
-Man on the run - Dash Berlin
+Man on the run - Dash Berlin,
 
 ## Cáratula
 
